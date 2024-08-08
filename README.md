@@ -1,0 +1,5 @@
+- 🎀 Olá, sou a Clara
+- 🎬 Gosto de filmes de romance 
+- ☕️ Adoro tomar café com leite
+- 👩‍💻 Estou interessada em tecnologia
+- 🌨 Amo dias frios
